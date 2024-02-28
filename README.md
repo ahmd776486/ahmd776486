@@ -6,6 +6,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...https://wa.me/+967776486528
 - https://wa.me/+967734207616
+- ahmd7764865@gmail.com
 ## search project 
 <!---
 ahmd776486/ahmd776486 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
